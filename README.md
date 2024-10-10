@@ -12,4 +12,4 @@
 --- 
 ## Screenshots
 
-<img src="https://ibb.co/QXfrVk1"> 
+<img src="https://i.ibb.co/Lv8nyr2/RDT-20241010-0749542093821509895223477.jpg"> 
